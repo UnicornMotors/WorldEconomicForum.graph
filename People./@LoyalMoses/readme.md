@@ -2,4 +2,4 @@
 https://m.youtube.com/@LoyalMoses
 
 # Favorite:
-- [It’s Not Your Truck Anymore. They Won.](
+- [It’s Not Your Truck Anymore. They Won.](https://youtu.be/ZWT1dzpQWqw)
